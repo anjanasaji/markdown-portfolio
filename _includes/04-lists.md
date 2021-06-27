@@ -1,6 +1,6 @@
-My favourite apps :tada:
-* 1.instagram :heart:
-* 2.club house :tada:
-* 3.facebook :+1:
-* 4.twitter :heart:
-* Discord : sparkles:
+*My favourite apps* :tada: 
+* ._instagram_ :heart:
+* ._club house_ :tada:
+* ._*facebook*_ :+1:
+* .*twitter* :heart:
+* .*Discord* :sparkles:
