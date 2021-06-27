@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+My **hobbies** are _music_ and _movies_
+I would like to _explore_ the **world** and _relax_ my **mind**
