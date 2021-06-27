@@ -1,5 +1,5 @@
-My favourite apps
+My favourite apps :tada:
 1.instagram :heart:
 2.club house :tada:
 3.facebook :+1:
-4.twitter
+4.twitter :heart:
