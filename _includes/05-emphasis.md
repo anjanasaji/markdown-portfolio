@@ -1,2 +1,3 @@
-My **hobbies** are _music_ and _movies_
-I would like to _explore_ the **world** and _relax_ my **mind**
+_I_ _AM_ **BTECH** _SECOND_ _YEAR_STUDENT_
+
+_I_ would like to **learn** things from **github**
