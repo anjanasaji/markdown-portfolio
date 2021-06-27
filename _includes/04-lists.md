@@ -1,6 +1,6 @@
 *My favourite apps*  
-* _instagram_ 
-* _club house_ 
+* __instagram__ 
+* __club house__ 
 * _**facebook**_
 * **twitter** 
 * **Discord** 
